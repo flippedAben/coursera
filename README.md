@@ -1,1 +1,1 @@
-Not for people who are taking the course.
+Not meant for people who are taking the courses.
